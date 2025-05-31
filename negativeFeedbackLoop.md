@@ -1,6 +1,6 @@
 [negative feedback loop ft. a hopeless romantic]
 
-you showed up, holding up flowers, and 
+you showed up, holding up flowers, and
 a smile you thought looked benign; 
 all i saw, however, was a smile feigned.
 
